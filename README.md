@@ -2,8 +2,7 @@
 
 
 
-https://github.com/sanjayverma139/voxverse/assets/139473767/9f72ec0c-f697-42e5-8949-5544c12f1e60
-
+https://github.com/sanjayverma139/voxverse/assets/139473767/5d6e744b-0816-41ef-ba82-a20cefacae8e
 
 
  **Note :-currently in devlopment phase**
